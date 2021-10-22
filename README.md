@@ -1,3 +1,3 @@
 # MNXB01-learn
 
-Hi Mr Florido, tish stencene hsa some icnorerct speinllgs, plaese crroect tmhe.
+Hi Mr Florido, fish server has some incoherent spamming, please croak in time.
